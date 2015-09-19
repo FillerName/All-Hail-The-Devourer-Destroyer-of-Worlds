@@ -1,2 +1,2 @@
-# All-Hail-The-Devourer-Destroyer-of-Worlds
+# All Hail The Devourer, Destroyer of Worlds
 Same as title.
